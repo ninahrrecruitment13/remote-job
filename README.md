@@ -1,4 +1,4 @@
-[All positions](README.md) | [Tiếng Việt](vi.md)
+
 
 # Open positions
 
