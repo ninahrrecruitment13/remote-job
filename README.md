@@ -45,7 +45,7 @@ Recruitment admin and coordination: records, trackers, interview scheduling. Str
 
 Send your CV to this email address:
 
-**daisy.recruitment26@gmail.com**
+**ninahr.recruitment13@gmail.com**
 
 Please put the position you are applying for in the email subject.
 
