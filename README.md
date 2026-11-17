@@ -1,5 +1,3 @@
-
-
 # Open positions
 
 Fully remote roles for a Singapore-based technology company, open to candidates in Vietnam.
